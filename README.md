@@ -1,1 +1,0 @@
-# dogschool.github.io
